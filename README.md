@@ -1,16 +1,36 @@
-## Hi there 👋
+**Herica Quadros**
+🍒
 
-<!--
-**hericaany/hericaany** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_tenho 16 anos_ 🎈
 
-Here are some ideas to get you started:
+tenho 3 cachorros, 3 gatos e 2 calopsitas 🐶 🐱 🐦
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+estudo de manhã 🌇
+
+torço pro São Paulo fc 🥇
+
+moro na cidade 🏙️
+
+amo dormir 🛌
+
+quero ser professora 🧑‍🏫
+
+estudo no col. Est. Rui Barbosa
+
+gosto de ouvir modoẽs 🎸
+
+quero conhecer a Australia, Suiça, Finlandia 🇦🇺, 🇨🇭, 🇫🇮.
+
+gosto de ver filme 
+
+moro em Nova Laranjeiras pr
+
+gosto de fazer comida
+
+quero morar em outra cdd
+
+e isso tchau
+
+![](https://media1.tenor.com/m/8wkOxfXEizUAAAAC/bye-bye.gif)
+
+herica.quadros@escola.pr.gov.br
